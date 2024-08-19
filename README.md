@@ -1,1 +1,1 @@
-# pararti
+# parati
